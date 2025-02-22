@@ -1,19 +1,24 @@
-Lorient face à Stade Lavallois commence le 22 févr. 2025 à 13:00 UTC au Stade Yves Allainmat-Le Moustoir stade, Lorient ville de, France. C'est un match de Ligue 2.
-1 rencontres cette saison entre Lorient et Stade Lavallois. A ce jour, Lorient est classé 1er, tandis que Stade Lavallois est classé 7e. Comparez les meilleurs joueurs de chaque équipe ? Le systéme de notation Sofascore's assigne des notes spécific pour chaque joueur en fonction de plusieurs facteurs.
-Sur le live Sofascore, vous trouverez les face à face entre Lorient et Stade Lavallois. Sofascore est la meilleure façon de suivre ce match avec plein de fonctionnalités. Par exemple vous pouvez:
-Sachez qui a marqué dans le match en direct
-Obtenez les informations sur l'équipe dominant le match en utilisant Attack Momentum
-Suivez les statistique détaillées comme la possession, les tirs, les corners, les grosses occasions, les cartons, les passes clés, les duels et plus
-Suivez tous les matchs à domicile et à l'éxtérieur en Ligue 2
-Regardez le favoris selon la communauté Sofascore.
-Toutes ces fonctionnalités peuvent vous aider à faire votre prédiction entre Lorient et Stade Lavallois. Bien que Sofascore ne vous permette pas de parier directement, vous y trouverez les meilleures cotes et sites de paris sportifs. Les cotes en direct de U-TV sont consultables sur la section live de Football .
-Où regarder Lorient vs Stade Lavallois ? Dans la section TV, vous trouverez la liste des chaînes diffusant Lorient – Stade Lavallois en direct. Vous pouvez également voir le match via nos partenaires paris sportifs ou via les liens légaux sur Sofascore.
-Détails de l'événement:
-NOM: Lorient - Stade Lavallois
-DATE: 22 févr. 2025
-TEMPS: 13:00 UTC
-STADE: Stade Yves Allainmat-Le Moustoir, Lorient, France
-Plus d'informations:
-Lorient scores en direct , calendrier et résultats
-Stade Lavallois scores en direct , calendrier et résultats
-Sofascore résultats en direct est disponible pour iPhone, iPad, Android (sur le Google Play Store) et pour Window phone. Vous pouvez nous retrouver dans différentes langues sur ces plateformes sous le même nom de "Sofascore". Installez l'application Sofascore et suivez Lorient Stade Lavallois en direct sur votre mobile!
+FC Lorient - Stade lavallois. À quelle heure et sur quelle chaîne TV suivre le match de Ligue 2 ?
+Leader de Ligue 2, le FC Lorient accueille le Stade lavallois, samedi 22 février, pour le compte de la 24e journée. Horaire, diffusion TV… Voici tout ce qu’il faut savoir pour suivre le match en direct.
+
+
+Please close pop-out player to resume playback.
+
+Ouest-France
+
+Publié le 22/02/2025 à 07h05
+ Lire plus tard
+ Partager
+Newsletter Football
+
+Chaque jour, le meilleur du foot avec la rédaction des Sports Ouest-France
+Votre e-mail
+Bien lancé sur le chemin de la Ligue 1, le FC Lorient a l’occasion de confirmer son excellente forme actuelle en recevant le Stade lavallois, ce samedi 22 février. Les Merlus, vainqueurs de leurs cinq dernières rencontres de Ligue 2, comptent cinq longueurs d’avance sur le deuxième, Metz, et six sur le troisième, le Paris FC, avant le coup d’envoi de cette 24e journée.
+
+
+Lire aussi : FC Lorient. « C’est encore plus fort de voir Pablo marquer » : Mickaël Pagis vibre pour son fils
+
+En face, Laval, après s’être rapproché des places de barragistes, est brutalement rentré dans le rang lors des derniers matches. Invaincus pendant dix rencontres en championnats, les Mayennais viennent d’enregistrer deux défaites de rang, face à Annecy (0-1) et Ajaccio (3-0). Victorieux à l’aller (2-0), début janvier, le Stade lavallois connaît la formule pour battre Lorient mais les hommes d’Olivier Frapolli vont se présenter avec une équipe diminuée dans le Morbihan.
+
+À quelle heure voir le match Lorient - Laval ?
+Le coup d’envoi sera donné à 14 h, au stade du Moustoir.
